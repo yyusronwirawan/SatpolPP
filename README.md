@@ -8,4 +8,4 @@
 </p>
 
 ## Sekilas
-Website ini merupakan Website Satpol PP Kabupaten Bone Bolango.
+Website ini merupakan Website Satpol PP.
